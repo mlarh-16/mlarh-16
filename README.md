@@ -1,6 +1,6 @@
 ## Mohamed Khalil Larhrib
 
-**Policy Officer at [The ONE Campaign](https://www.one.org/ca/).** Co-author of [*Canada-Africa Strategy at One Year: Turning Words into Action*](https://www.one.org/ca/what-we-do/the-issues/canada-africa-strategy-words-progress-action-implementation/) (with Elise Legault and Ciuriak Consulting, March 2026).
+**Policy Officer at [The ONE Campaign](https://www.one.org/ca/).**
 
 I work at the intersection of policy and data. MA in International Relations (St John's University, Rome). Previously based at the Permanent Representation of Morocco to the United Nations in Rome, working on food security and African development policy.
 
