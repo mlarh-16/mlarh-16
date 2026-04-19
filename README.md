@@ -6,7 +6,7 @@ I work at the intersection of policy and data. MA in International Relations (St
 
 I produce policy analysis and data pipelines on Africa-focused international affairs — published with senior trade economists, on rapid-response political files, and in peer-researcher collaborations.
 
-Based in Ottawa, Canada. Open to Canada-based and remote-global roles.
+Based in a small town near Ottawa, Canada.
 
 ---
 
